@@ -2,7 +2,8 @@
 🔭I'm currently work as Backend Developer at Opinia
 💫I'm really curious about learning new things
 👨‍🎓I've completed my undergraduated education at Gunadarma University and continuing my postgraduated education at Gunadarma University as well
-Wish me luck!!
+🤲 My goal is to be a professional software engineer that could change the world
+⭐ Wish me luck!! ⭐
 
 
 ## 🌐 Socials:
